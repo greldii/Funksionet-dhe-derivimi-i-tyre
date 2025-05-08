@@ -1,0 +1,1 @@
+# Funksionet-dhe-derivimi-i-tyre
